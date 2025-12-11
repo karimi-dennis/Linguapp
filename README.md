@@ -1,0 +1,2 @@
+# Linguapp
+CHATGPT EDIT
